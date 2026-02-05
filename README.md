@@ -1,6 +1,8 @@
 # Cringe
 Very good
 yes
+iyfqubiavpawvbiwbuiWEIPAOÅUHUÅGE    OU  FEPGU   OUIAGEHPOFQHRÅGPQIWNFÅPOW
+W
 <<<<<<< HEAD
 iubasfubvasgobUPIgduoåWG
 JAG ÄR BÄST
