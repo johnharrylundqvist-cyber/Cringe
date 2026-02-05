@@ -13,3 +13,5 @@ KING KING KING
 hej 
 du
 kska
+döda john 
+du ska dö hör mina ord 
